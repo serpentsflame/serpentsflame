@@ -18,7 +18,7 @@ Orientation: Aro-Ace. Never come to me with anything other than Platonic Feeling
 
 ---
 
-<img src="(https://github.com/user-attachments/assets/a629b43c-60ad-4650-8270-45aaab831381" width="100%" align="center">
+<img src="https://github.com/user-attachments/assets/a629b43c-60ad-4650-8270-45aaab831381" width="100%" align="center">
 
 ---
 
