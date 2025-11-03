@@ -1,16 +1,50 @@
-## Hi there 👋
+<!-- ✨ HEADER BANNER ✨ -->
+<img src="https://github.com/user-attachments/assets/bafa46b9-59df-4aa5-acab-a754b8cb7337" width="100%">
 
-<!--
-**sinofliving/sinofliving** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
 
-Here are some ideas to get you started:
+## BYF! 🦀
+![badge](https://img.shields.io/badge/BYF!-Dazai%20Edition-brown?style=for-the-badge)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"><i>“Living itself is the source of sin. As long as I can make them laugh, it doesn't matter how, I'll be alright. If I succeed in that, the human beings probably won't mind it too much if I remain outside their lives. The one thing I must avoid is becoming offensive in their eyes: I shall be nothing, the wind, the sky.”</i><br>— Osamu Dazai</p>
+
+Pronouns: Any (I am Agender, therefore the choice of my Pronouns is entirely yours.)     
+Orientation: Aro-Ace. Never come to me with anything other than Platonic Feelings. I do not do Commitments.
+
+### 💬 Notes
+1. Please ask before C+H — friends are always welcome.
+2. Copying my Ponytown Skins = block 🚫  
+3. I am an ENTP, therefore quite mischievous. (i will bully you, but only if we are close. My bullying or insulting is never meant to be taken serious.)
+
+---
+
+<img src="(https://github.com/user-attachments/assets/a629b43c-60ad-4650-8270-45aaab831381" width="100%" align="center">
+
+---
+
+## 🦀 About Me
+![badge](https://img.shields.io/badge/Osamu%20Dazai-Kin-brown?style=for-the-badge)
+
+I stay up late talking to friends, watching horror movies, or playing games.       
+A big dislike of mine: people who only come to unload their misery onto me, expecting i'll entertain it like a clown.  
+
+---
+
+### 🎮 Games I Enjoy
+Roblox → SEWH, Evade and random Stupid Obbies.   
+VrChat → Mostly play Horror Games on there.
+
+### 💫 Fandoms
+Bungou Stray Dogs, Call of Duty, FNAF, Undertale, Deltarune, NBC Hannibal, Deadpool and Wolverine, and more!
+
+### 💖 Favs/Kins
+Osamu Dazai(BSD), John MacTavish + 2009 Simon Riley + Phillip Graves from CoD, Jax(TADC), Spamton(DR), 
+
+---
+
+Now since you're already here and have read this far, why don't you go ahead and sign my Atabook?   
+You could leave a confusing Message, or some silly little Joke. it's entirely up to You.
+
+---
+
+<img src="https://github.com/user-attachments/assets/f534ec0f-edd5-47ac-a475-1c7aec46383b" width="100%">
