@@ -1,5 +1,5 @@
 <!-- ✨ HEADER BANNER ✨ -->
-<img src="https://github.com/user-attachments/assets/bafa46b9-59df-4aa5-acab-a754b8cb7337" width="100%">
+<img src="https://github.com/user-attachments/assets/da721982-08b0-49f7-a6b6-a14c4968684d" width="100%">
 
 ---
 
@@ -47,4 +47,4 @@ You could leave a confusing Message, or some silly little Joke. it's entirely up
 
 ---
 
-<img src="https://github.com/user-attachments/assets/f534ec0f-edd5-47ac-a475-1c7aec46383b" width="100%">
+<img src="https://github.com/user-attachments/assets/1c826c2c-3598-44c9-ae2f-9049af91ab96" width="100%">
