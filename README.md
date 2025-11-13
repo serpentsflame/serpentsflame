@@ -38,7 +38,7 @@ Ponytown → Usually mostly AFK in there or making new skins. Whisper to Interac
 Bungou Stray Dogs, Call of Duty, Hazbin Hotel, Helluva Boss, FNAF, Undertale, Deltarune, NBC Hannibal, Deadpool and Wolverine, and more!
 
 ### 🎶 My Kins
-Osamu Dazai from Bungo Stray Dogs(highest kin unfortunately), Alastor from Hazbin Hotel(Possibly second highest kin.. i'm not sure yet.), Jax from The Amazing Digital Circus and Spamton from Deltarune.
+Osamu Dazai from Bungo Stray Dogs(highest kin unfortunately), Alastor and Lucifer from Hazbin Hotel(Possibly second highest kins.. i'm not sure yet.), Jax from The Amazing Digital Circus and Spamton from Deltarune.
 
 ---
 
