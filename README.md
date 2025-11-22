@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/71beb498-7343-4cc3-932b-b6b72477e4d4" width="100%" align="center">
+<img src="https://github.com/user-attachments/assets/34d18ae8-c26f-41d3-9506-fe181b8be2a9" width="100%" align="center">
 
 ## BYF! ♡
 
