@@ -33,6 +33,6 @@ Leave behind a jest, a confession, or a riddle that even you don’t understand.
 
 <p align="center">
   <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.herokuapp.com?font=Spectral&weight=700&size=32&duration=4200&pause=1000&color=AD0148&center=true&width=435&lines=The+Radio+Demon+Approves." />
+    <img src="https://readme-typing-svg.herokuapp.com?font=Orbitron&weight=700&size=32&duration=3500&pause=800&color=00E5FF&center=true&width=435&lines=VoxTek+Approved." />
   </a>
 </p>
