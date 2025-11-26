@@ -20,7 +20,7 @@ Orientation: Aro-Ace. Never come to me with anything other than Platonic Feeling
 Bungou Stray Dogs, Call of Duty, Hazbin Hotel, Helluva Boss, FNAF, Undertale, Deltarune, NBC Hannibal, Deadpool and Wolverine, and more!
 
 ### ◇ My Kins
-Osamu Dazai from Bungo Stray Dogs(highest kin unfortunately), Alastor (and maybe even Vox a bit) from Hazbin Hotel(second highest kins possibly..), Jax from The Amazing Digital Circus and Spamton from Deltarune.
+Osamu Dazai from Bungo Stray Dogs(highest kin unfortunately), Alastor from Hazbin Hotel(second highest kin..), Jax from The Amazing Digital Circus and Spamton from Deltarune.
 
 ---
 
