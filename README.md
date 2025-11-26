@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/87062741-cb79-435c-a717-c39c240e0a46" width="100%" align="center">
+<img src="https://github.com/user-attachments/assets/fb01863f-e3fb-47af-9479-1806a5f025eb" width="100%" align="center">
 
 ## BYF! ♡
 
@@ -33,6 +33,6 @@ Leave behind a jest, a confession, or a riddle that even you don’t understand.
 
 <p align="center">
   <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.herokuapp.com?font=Orbitron&weight=700&size=32&duration=3500&pause=800&color=00E5FF&center=true&width=435&lines=VoxTek+Approved." />
+    <img src="https://readme-typing-svg.herokuapp.com?font=Spectral&weight=700&size=32&duration=4200&pause=1000&color=AD0148&center=true&width=435&lines=The+Radio+Demon+Approves." />
   </a>
 </p>
